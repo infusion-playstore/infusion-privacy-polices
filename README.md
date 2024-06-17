@@ -1,1 +1,1 @@
-# my-quote-app
+# infusion mobile app privacy policy
